@@ -3,7 +3,7 @@
 
 # Some random sample questions from the database
 
-It's the 1300s. As human garbage, what time would you like it to be?
+It's the 1300s. As human garbage, what time would you like it to be? (I miss you)
 
 Are gang stalkers focused on the suffering of helpless individuals because a) they are brainwashed and largely unconscious of their own actions or more so b) because of certain moral beliefs that purport to be 'conscious' and aligned with conscience?
 
