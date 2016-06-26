@@ -25,7 +25,7 @@ Has eugenics autorelinquished itself to atavism?
 
 Has eugenics surpassed its own atavistic destiny?
 
-Can eugenics become atavistic?
+When will eugenics become atavistic?
 
 Has eugenics not become atavistic?
 
