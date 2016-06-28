@@ -33,7 +33,7 @@ Is "The 33D Invader" a contemporary eugenicist comedy?
 
 To what extent does eugenics remain embedded in contemporary manifestations of biopower as thresholds of potential, risk, unforseen consequences (etc.)?
 
-Did eugenics really ever end at 'Nazi race science' (considered here as the banal go-to example used to distract away from present developments)?
+Did eugenics really ever end at 'Nazi race science'? (Considered here as the banal go-to example used to distract away from present developments.)
 
 Whence eugenics?
 
