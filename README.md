@@ -48,3 +48,7 @@ To what extent are contemporary eugenicists hiding behind euphemism and silence?
 Are some people merely 'born into Hollywood' (or wherever else) as indentured slaves at the level of cloning and genetic harvesting?
 
 Why does 'Hollywood' seemingly haunt people? (Greg Carlwood got me thinking of this after a jokey comment toward the end of a show, I don't remember which one).
+
+# Homage to Woodie Guthrie
+
+THIS MACHINE KILLS GANG STALKERS
