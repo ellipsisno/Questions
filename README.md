@@ -15,7 +15,7 @@ Does advanced classism in contemporary capitalism possess built in eugenicist te
 
 Having been largely co-opted by the military-market-infotainment complex in the post-Snowden era, when and how is 'the Internet' not merely an amassment of technocratic surveillance dragnets and booby traps?
 
-Is it true that 99.9% of dick baggers are inexorable autocucks? (Hint: the answer is <em>yes</em>)
+Is it true that 99.9% of dick baggers are inexorable autocucks? (Hint: the answer is <em>yes</em>!)
 
 What if certain apogees of eugenics are 'severely retarded' [by way of various paradoxes] but have no way of perceiving themselves as such?
 
