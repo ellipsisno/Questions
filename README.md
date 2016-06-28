@@ -49,6 +49,6 @@ Are some people merely 'born into Hollywood' (or wherever else) as indentured sl
 
 Why does 'Hollywood' seemingly haunt people? (Greg Carlwood got me thinking of this after a jokey comment toward the end of a show, I don't remember which one).
 
-# Homage to Woodie Guthrie
+# Homage to Woody Guthrie
 
 THIS MACHINE KILLS GANG STALKERS
