@@ -1,5 +1,5 @@
 # Questions
-<em>Questions</em> (June 2016) is an anti-search engine coded in the spirit of philosophical inquiry. The engine saves questions asked to it and provides no search results or 'answers' to them (queries produce more questions). Questions is a response to the automated, spoon-fed, instant gratification of contemporary search engines. The thought (urge) is to produce a space where the conclusive shivs of machinic intelligence are not perpetually upgrading the illusion of 'their' (and that of their recursive handlers) epistemic authority.
+<em>Questions</em> (June 2016) is an anti-search engine coded in the spirit of philosophical inquiry. The engine saves questions asked to it and provides no search results or 'answers' to them (queries produce more questions). Questions is a response to the automated, spoon-fed, instant gratification of contemporary search engines. The thought-urge is to produce a space where the conclusive shivs of machinic intelligence are not perpetually upgrading the illusion of 'their' (and that of their recursive handlers) epistemic authority.
 
 # Some random sample questions from the database
 
