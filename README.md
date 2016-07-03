@@ -5,7 +5,7 @@
 
 It's the 1300s. As human garbage, what time would you like it to be? (I miss you)
 
-Are gang stalkers focused on the suffering of helpless individuals because a) they are brainwashed and largely unconscious of their own actions, b) because of certain moral beliefs that purport to be 'conscious' and aligned with conscience, c) because they are the reified expression of layer upon layer of automated process that they have no understanding of or means of altering or d) all of the above?
+Are gang stalkers focused on the suffering of helpless individuals because (a) they are brainwashed and largely unconscious of their own actions, (b) because of certain moral beliefs that purport to be 'conscious' and aligned with conscience, (c) because they are the reified expression of layer upon layer of automated process that they have little to no understanding of or means of altering or (d) all of the above?
 
 Does mere diffuse technocratic control of secretive technologies play into eugenicist delusions of grandeur in a variety of ways that usually go unsung/unacknowledged/unnoticed?
 
